@@ -1,4 +1,4 @@
-Hi, I'm Your Divya👋
+Hi, I'm  Divya👋
 
 🎓 Computer Science Engineering Student 
 (Batch of 2027)
